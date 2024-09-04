@@ -2,7 +2,7 @@
 علی کِی اِچ هستم و اینجا کِی اِچ گنگ یا همون کِی اِچ جی ان جی هست .
 
 
-⚠Front programmer<br>🌹Web designer<br>🐱‍👤Backend programmer<br>✨Python programmer<br>💤Visual Basic programmer<br>🐱‍👓Discord bot programmer<br>👀Learning and programming Android<br>👊Iranian Writer 
+⚠Front programmer<br>🌹Web designer<br>🐱‍👤Backend programmer<br>✨Python programmer<br>💤Visual Basic programmer<br>🐱‍👓Discord bot programmer<br>👀Learning and programming Android<br>👊Iranian Writer <br> Shell Programmer <br> JS Programmer
 
 
 
