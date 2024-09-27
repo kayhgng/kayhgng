@@ -4,6 +4,9 @@
 
 ⚠Front programmer<br>🌹Web designer<br>🐱‍👤Backend programmer<br>✨Python programmer<br>💤Visual Basic programmer<br>🐱‍👓Discord bot programmer<br>👀Learning and programming Android<br>👊Iranian Writer <br> Shell Programmer <br> JS Programmer
 
+## لینک دونیت ارز دیجیتال TON:
+
+UQBNCEBZZEdUkchBb3wGYzkZWyclSdmLPE_yQw1XWCVjGeS5
 
 
 # 💻 Tech Stack:
